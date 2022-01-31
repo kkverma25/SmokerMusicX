@@ -1,4 +1,4 @@
-# SMOKER MUSICX
+# DEVIL MUSICS
 
 ### Best Smart Voice Chat Music Bot For Telegram Groups ...
 
